@@ -19,7 +19,7 @@
 
 ## Support
 
-For support, email curtis.tseng@bandwidth10.com or call ext:5602.
+For support, email iiscurtis@hotmail.com.
 
 
 ## Demo
